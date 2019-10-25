@@ -45,8 +45,9 @@ Avirup Aditya(Kolkata)
 
 Soutrik Acharya(Kolkata)
 
-
 Nishant Kumar (Jharkhand)
 
 Prashant Sharma (DTU, delhi)
+
+Sujal Kumar (Jharkhand)
 
